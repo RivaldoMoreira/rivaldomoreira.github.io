@@ -1,1 +1,0 @@
-# rivaldomoreira.github.io
